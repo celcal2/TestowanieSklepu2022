@@ -1,1 +1,0 @@
-# TestowanieSklepu2022
